@@ -1,4 +1,0 @@
-1227134
-gelato stracciatella
-panna montata
-amarene
